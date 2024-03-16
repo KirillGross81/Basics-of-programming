@@ -1,1 +1,1 @@
-Pracical tasks
+Practical tasks
